@@ -16,3 +16,5 @@
 </div><br/>
 
 ## Apaixonado por Tecnologia
+
+- [Email](eduardo2491998@outlook.com)
